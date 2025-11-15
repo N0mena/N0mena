@@ -4,7 +4,7 @@ My name's **Nomena Todisoa** , currently
 
 * an accountant-fincance student
 * an IT student
-* Aspiring to become a Business Systems Analyst
+* Aspiring to become a Financial Data Analyst
 
 Follow me : www.linkedin.com/in/alida-randrianatoandro
 
