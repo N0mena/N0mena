@@ -7,4 +7,5 @@ My name's **Nomena Todisoa** , currently
 * Aspiring to become a Business Systems Analyst
 
 Follow me : www.linkedin.com/in/alida-randrianatoandro
+
 Contact : alida.rajaonarivelo@gmail.com
